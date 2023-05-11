@@ -1,2 +1,2 @@
-# ITAcademt
+# ITAcademy
  
